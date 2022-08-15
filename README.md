@@ -8,4 +8,4 @@
 
 - Twitter : https://twitter.com/ManjulJoshi0806
 - Gmail : jmanjul09@gmail.com
-- Instagram : instagram.com/_manjul_joshi
+- Instagram : https://bit.ly/3PvwJtD
