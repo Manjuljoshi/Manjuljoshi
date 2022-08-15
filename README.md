@@ -6,7 +6,6 @@
 - 🤔 I’m looking for help who can give their valuable ideas for my future  
 - 📫 How to reach me:-  👇👇
 
-- Twitter : https://twitter.com/ManjulJoshi0806
+- Twitter : https://bit.ly/3w802M5
 - Gmail : jmanjul09@gmail.com
 - Instagram : https://bit.ly/3PvwJtD
-- https://bit.ly/3w802M5
