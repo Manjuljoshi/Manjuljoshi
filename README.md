@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help who can give their valuable ideas for my future  
 - 📫 How to reach me:-  👇👇
 
-- Twitter : @ManjulJoshi0806 
+- Twitter : https://twitter.com/ManjulJoshi0806
 - Gmail : jmanjul09@gmail.com
